@@ -22,7 +22,7 @@ I can program C (trust), but I only have 1 repo for that.
 
 ## 🎞️ Youtube.
 
-Sub: https://www.youtube.com/channel/UCzcr2wpDkmQYC9Gmbq7R-hw?sub_confirmation=1
+<a href="https://github.com/Legendary-Candice-Joe/Legendary-Candice-Joe/blob/main/index.html">Sub:</a> https://www.youtube.com/channel/UCzcr2wpDkmQYC9Gmbq7R-hw?sub_confirmation=1
 
 ## 👶 My son.
 
