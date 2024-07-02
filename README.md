@@ -1,6 +1,23 @@
-# 🤡 | The idiot is finally here!
+-------------------------------------------------------------
+<div align="center">
 
-To be clear. Nothing I really do is serious. 🤡🤡🤡🤡
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Wittgenstein&size=29&pause=1000&color=149517&center=true&random=false&width=435&lines=Candice+Joe+%7C+The+Legend+Himself)](https://git.io/typing-svg)
+
+**The Idiot if Finally here!**
+</div>
+
+-------------------------------------------------------------
+<div align="center">
+ 
+**Contents**
+</div>
+<div align="center">
+ 
+<> [**`• Lore`**](#--lore) <> [**`• C`**](#--c-real) <> [**`• 🗿`**](#) <> [**`• Youtube`**](#%EF%B8%8F--youtube) <> [**`• OS`**](#--os) <> [**`• My Son`**](#--my-son) <>
+
+</div>
+
+-------------------------------------------------------------
 
 ## 📜 | Lore.
 
